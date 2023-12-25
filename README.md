@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **somaharshithkumar2004@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1_5WsaEJRYtgLZENdx45ROoiV4SmC57d_/view?usp=sharing]([https://drive.google.com/file/d/1_5WsaEJRYtgLZENdx45ROoiV4SmC57d_/view?usp=sharing](https://drive.google.com/file/d/1xW_xWFvQB74_jlzIbbAiOtznKG6l0AW7/view?usp=sharing))
+- 📄 Know about my experiences https://drive.google.com/file/d/1xW_xWFvQB74_jlzIbbAiOtznKG6l0AW7/view?usp=sharing
 
 - ⚡ Fun fact **FUN!**
 
